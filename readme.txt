@@ -1,1 +1,1 @@
-Versity Project
+University Project
